@@ -5,6 +5,6 @@ Also learning how to kickflip!
 - 💞️ I’m looking to collaborate on any project I can be proud of!
 - 😄 Pronouns: He/Him
 - 📫 How to reach me:
-LinkedIn: https://www.linkedin.com/in/marco-ogaz-vega-987b7b300/
-Twitter (For Fun): https://x.com/MakoSharkIsBad
+- LinkedIn: https://www.linkedin.com/in/marco-ogaz-vega-987b7b300/
+- Twitter (For Fun): https://x.com/MakoSharkIsBad
 
