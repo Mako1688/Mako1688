@@ -7,4 +7,4 @@ Also learning how to kickflip!
 - 📫 How to reach me:
 - LinkedIn: https://www.linkedin.com/in/marco-ogaz-vega-987b7b300/
 - Twitter (For Fun): https://x.com/MakoSharkIsBad
-
+- Portfolio: https://mako1688.github.io/Portfolio/
